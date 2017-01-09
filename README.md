@@ -2,7 +2,7 @@
 
 This is my bio. I was born... 
 
-That was the king of bios 20-25 years ago in Bulgaria. It was very important to about yout father and mother and to not miss your sister. 
+That was the kind of bios 20-25 years ago in Bulgaria. It was very important to about yout father and mother and to not miss your sister. 
 
 I've been thinking what I consider is the most important about me. Was it the positions I've held? Was it the skills I've developed?
 
